@@ -1,1 +1,0 @@
-# SAIDBILALDARIYEMEZ.github.io
